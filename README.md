@@ -4,4 +4,4 @@
 -*в колледже МГКЦТ*-
 
 ##Со мной можно связатся по почте 
--vfytttyui32@gmail.com-
+_ vfytttyui32@gmail.com
